@@ -1,0 +1,1 @@
+# Pensamento-Comp_D
